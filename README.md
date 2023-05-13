@@ -7,4 +7,4 @@
 - 💼 I have experience working as a freelance data analyst on platforms like Upwork, where I have completed projects related to data cleaning, data analysis, data visualization and reporting and creation of data analysis learning content for various clients.
 - 👯 I’m looking to collaborate on data analysis jobs and projects that allow me to apply my skills and expertise to help organizations make data-driven decisions.
 - 🔹 I post valuable data-related content on my [twitter page](https://twitter.com/Olaoluwa__Mercy)
-- 📫 How to reach me: http://linktr.ee/olaoluwamercy
+- 📫 Connect with Me: [Here](http://linktr.ee/olaoluwamercy)
